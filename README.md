@@ -1,4 +1,4 @@
-## Hi there 👋 i am ungraguade Roshan Tara School, Karachi i am studying, i like coding.
+## Hi there 👋 i am ungraguade Vidya Samithi Arts and Science Degree College i am studying, i like coding.
 
 
 Here are some ideas to get you started:
